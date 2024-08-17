@@ -11,4 +11,4 @@ Estou sempre em busca de novos desafios e oportunidades para aprender e crescer.
 - 💼 LinkedIn: www.linkedin.com/in/natalia-mendes-menino
 
 
-Obrigado por visitar meu perfil! 🚀
+Obrigada por visitar meu perfil! 🚀
