@@ -3,7 +3,9 @@
 Bem-vindo ao meu perfil do GitHub! 
 Sou professora e mestranda em Modelagem Computacional e Sistemas. 
 Espero poder te ajudar na sua jornada na programação!
-Estou sempre em busca de novos desafios e oportunidades para aprender e crescer. 
+
+Estou sempre em busca de novos desafios e oportunidades para aprender e crescer.
+Estou com a mente aberta para aprender com você também!
 
 ## 🤝 Contato
 
